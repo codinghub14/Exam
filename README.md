@@ -7,3 +7,4 @@ aws : chalsetanvi1411@gmail.com
 password for all : Tanu@1109
 182290
 Verification code: 277303
+Verification code: 016969
